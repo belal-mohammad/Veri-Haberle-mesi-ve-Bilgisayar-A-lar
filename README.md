@@ -1,0 +1,1 @@
+# Veri-Haberle-mesi-ve-Bilgisayar-A-lar
